@@ -1,2 +1,7 @@
-# StockUp
-StockUp is a product management software that helps shop owners organize products, track sales and profits, manage purchases, and send automated emails to clients.
+# hello there sugar honey ;)
+
+
+does this even work lmfao
+
+
+ok i would like to add this text now lmfao
